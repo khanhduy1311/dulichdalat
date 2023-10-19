@@ -16,4 +16,4 @@ Thực phẩm địa phương: Khám phá ẩm thực Đà Lạt bằng cách th
 Chợ Đà Lạt: Chợ Đà Lạt là nơi bạn có thể mua sắm đồ lưu niệm và thực phẩm địa phương. Bạn cũng có thể tham quan và mua sắm tại khu thị trấn Đà Lạt để tìm các sản phẩm thủ công độc đáo.
 
 Đà Lạt là một điểm đến tuyệt vời cho những người yêu thiên nhiên, hoạt động ngoài trời và muốn tránh khỏi thời tiết nóng nực. Hãy lên kế hoạch cho chuyến du lịch của bạn để khám phá những vẻ đẹp độc đáo và văn hóa đặc biệt của thành phố này.
-![screen-3](https://github.com/khanhduy1311/dulichdalat/assets/131432096/0c490f0d-6c81-40cc-913f-2f9e8f31e40d)
+![anh-dep-da-lat-nang-som_085717263](https://github.com/khanhduy1311/dulichdalat/assets/131432096/5f38ba18-3533-4dba-82fb-a934cb3f5fc7)
